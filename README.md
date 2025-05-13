@@ -1,2 +1,2 @@
-# shesquigggles
-Inge's art
+# Inge is Art
+Inge's art website
